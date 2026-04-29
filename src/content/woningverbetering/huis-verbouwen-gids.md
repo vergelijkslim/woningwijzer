@@ -151,5 +151,5 @@ Aannemerkosten verschillen sterk — tot 40% verschil voor hetzelfde werk. Verge
 [Vergelijk isolatie installateurs →](https://www.verbeterjehuis.nl/isolatie/?utm_source=vergelijk-uw-renovatie&utm_medium=affiliate&utm_campaign=woningverbetering)
 
 **Handige producten (via Amazon.nl):**
-- [Bouwboek verbouwen & renoveren](https://www.amazon.nl/s?k=bouwboek+verbouwen+renoveren&tag=vergelijk05-21)
-- [Energielabel toolkit](https://www.amazon.nl/s?k=energielabel+toolkit+woning&tag=vergelijk05-21)
+- [Bosch PSB 1800 LI-2 accuboormachine](https://www.amazon.nl/dp/B09Z91WB4S?tag=vergelijk05-21)
+- [Stabila digitale waterpas 60cm](https://www.amazon.nl/dp/B0009PUUMC?tag=vergelijk05-21)
