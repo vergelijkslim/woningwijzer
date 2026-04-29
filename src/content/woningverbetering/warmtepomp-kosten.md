@@ -155,6 +155,16 @@ De **Investeringssubsidie Duurzame Energie en Energiebesparing (ISDE)** is de vo
 
 **Advies:** Kies een merk met een sterk servicenetwerk in Nederland. Bij storing wil je snel een monteur — dat is bij NIBE, Daikin en Vaillant het best geregeld.
 
+## Dit raad ik af
+
+**Een lucht-lucht warmtepomp voor verwarming raad ik af als primaire verwarming voor een Nederlands huis.** Lucht-lucht pompen zijn prima voor koeling in de zomer, maar voor verwarming in een NL-winter zijn ze inefficiënt en oncomfortabel — ze blazen warme lucht uit aan het plafond terwijl je voeten koud blijven. Voor verwarming wil je een lucht-water warmtepomp die het vloerverwarmings- of radiatorcircuit voedt.
+
+**Een volledig elektrische warmtepomp in een slecht geïsoleerde woning raad ik af.** Als je spouwmuurisolatie mist of dubbele beglazing ontbreekt, gaat de warmtepomp continu op maximaal vermogen draaien — de energierekening wordt dan hoger dan met gas. Isoleer eerst (label C of beter), dan de warmtepomp. In de verkeerde volgorde gooi je geld weg.
+
+**Ik raad ook af om de goedkoopste installateur te nemen.** Een warmtepomp is een systeem waarbij kleine installatiefouten (verkeerd ingeregeld vermogen, slechte vloeistofkoppelingen) jaren later pas opvallen. Kies een installateur met STEK-certificaat en aantoonbare ervaring met het gekozen merk.
+
+**Mijn keuze:** Hybride warmtepomp als je woning gebouwd is voor 1980 en je niet wil investeren in grote isolatiewerken. Volledig elektrisch lucht-water zodra je woning label C of beter heeft. En specifiek qua merk: NIBE of Daikin — niet vanwege marketingpraatjes, maar omdat ik in de praktijk zie dat hun servicenetwerk in Nederland het best functioneert bij storingen.
+
 ## Praktische Tips
 
 1. **Isoleer eerst je woning** — Een warmtepomp rendeert beter in een goed geïsoleerde woning. Investeer eerst in [spouwmuurisolatie en dakisolatie](/woningverbetering/woning-isoleren-volgorde/).

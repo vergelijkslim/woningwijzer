@@ -178,6 +178,14 @@ Als de indeling en constructie van de keuken nog goed zijn maar de uitstraling v
 6. **Levering en plaatsing** — Gemiddeld 4-8 weken levertijd voor merkkeuken; IKEA is direct leverbaar.
 7. **Controle oplevering** — Test alle apparatuur, controleer sluitingen, voegen en wateraansluitingen.
 
+## Dit raad ik af
+
+**Een keuken van IKEA raad ik af als je een keuken koopt voor meer dan 15 jaar.** IKEA-keukens zijn prima voor huurappartementen of tijdelijke woonsituaties, maar de kasten zijn minder robuust dan middensegment-alternatieven (Häcker, Nobilia). Na 8–10 jaar intensief gebruik versleten scharnieren, zwellende deuren — en dan is een IKEA-keuken niet goedkoop meer want je begint opnieuw.
+
+**Ik raad ook af om te kiezen voor een inductiekookplaat van een onbekend merk.** Kookplaten ondergaan dagelijks gebruik en hitte-stress. Een goedkope inductieplaat van €150 kan na drie jaar defect gaan. Kies voor Bosch, Siemens of AEG — die zijn te vinden voor €400–€600 en gaan 10–15 jaar mee.
+
+**Mijn keuze:** Kasten spuiten als de constructie goed is — dit is de beste waarde-ingreep in een keuken. Nieuw werkblad in Silestone of keramiek (30–40 jaar mee), nieuw kookeiland of -plaat, en nieuwe kraan. Die drie elementen transformeren een keuken voor €3.000–€5.000 in plaats van €12.000.
+
 ## Conclusie
 
 Een keukenrenovatie kost gemiddeld **8.000-15.000 EUR** voor de middenklasse. De slimste besparing is het spuiten van bestaande kasten (1.500-3.500 EUR) als de constructie nog goed is. Bij volledige vervanging geldt: investeer in een goed werkblad (Silestone of Dekton), houd aansluitingen op dezelfde plek en vergelijk altijd minimaal 3 offertes.

@@ -188,6 +188,14 @@ Een badkamer is de populairste plek voor vloerverwarming. Als de vloer toch open
 6. **Uitvoering** — Sloop → leidingen → elektrische installatie → wanden strippen → tegelwerk → sanitair → afwerking.
 7. **Oplevering controleren** — Test alle aansluitingen, controleer voegwerk en siliconen.
 
+## Dit raad ik af
+
+**Ik raad af om te kiezen voor een all-in renovatiepakket van een woonwinkel.** Badkamerzaken als Badkamerwereld of Hornbach bieden aantrekkelijke all-in pakketten, maar de installateur die erbij komt is vaak niet de vakman die je wil. Je hebt weinig inspraakmogelijkheden bij problemen, en de garantieafhandeling loopt via de woonwinkel — langzaam en bureaucratisch. Vergelijk liever drie offertes van zelfstandige aannemers.
+
+**Ik raad luxe kranen van A-merken af als je budget krap is.** Grohe en Hansgrohe zijn uitstekende merken, maar een Grohe thermostaatkraan kost €400–€800 terwijl een betrouwbare kraan van Clage of Tres voor €150–€250 dezelfde levensduur heeft. Investeer het verschil liever in betere tegels of een kwalitatievere waterproofing — die zie je niet maar je merkt het wel over tien jaar.
+
+**Mijn keuze:** Houd de indeling, vervang de vloer, de douche en het tegelwerk, maar behoud de leidingposities. Dit is de ingreep met de beste prijs-resultaat verhouding. Voor sanitair ga ik voor Geberit inbouwreservoir (onzichtbaar, stiller dan opbouw) en een eenvoudige regendouche van €100–€200 — dat voelt meteen als een luxe badkamer zonder de luxe prijs.
+
 ## Conclusie
 
 Een badkamerrenovatie kost gemiddeld **10.000-18.000 EUR** voor een badkamer van 5-7 m² in het midden segment. De grootste besparingen zitten in de keuze voor de bestaande indeling, het vergelijken van offertes en slim inkopen van tegels. Kies sanitair van een bewezen merk (Grohe, Hansgrohe, Geberit) voor de beste combinatie van prijs, kwaliteit en garantie.
