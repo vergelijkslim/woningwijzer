@@ -204,7 +204,7 @@ Aannemerkosten verschillen sterk — tot 40% verschil voor hetzelfde werk. Verge
 
 [Vraag gratis badkamer-offertes aan →](https://www.offerteadviseur.nl/verbouwen/?utm_source=vergelijk-uw-renovatie&utm_medium=affiliate&utm_campaign=badkamer)
 
-[Vergelijk badkamer installateurs →](https://www.verbeterjehuis.nl/badkamer/?utm_source=vergelijk-uw-renovatie&utm_medium=affiliate&utm_campaign=badkamer)
+[Vergelijk badkamer installateurs →](https://www.offerteadviseur.nl/verbouwen/?utm_source=vergelijk-uw-renovatie&utm_medium=affiliate&utm_campaign=badkamer)
 
 **Handige producten (via Amazon.nl):**
 - [Badkamer tegels groot formaat](https://www.amazon.nl/s?k=badkamertegels+groot+formaat&tag=vergelijk05-21)

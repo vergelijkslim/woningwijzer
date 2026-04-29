@@ -52,8 +52,8 @@ Een warmtepomp is de meest effectieve manier om je woning te verduurzamen en aar
 
 | Woningtype | Aanbevolen | Waarom |
 |---|---|---|
-| Bestaand (matig geisoleerd) | Hybride | Cv-ketel als backup bij strenge vorst |
-| Goed geisoleerd (Rc 3+) | Lucht-water | Volledig van gas af |
+| Bestaand (matig geïsoleerd) | Hybride | Cv-ketel als backup bij strenge vorst |
+| Goed geïsoleerd (Rc 3+) | Lucht-water | Volledig van gas af |
 | Nieuwbouw | Lucht-water of bodem | Verplicht gasloos, optimale isolatie |
 | Appartement zonder tuin | Lucht-lucht | Geen buitenunit of bodem nodig |
 
@@ -174,7 +174,7 @@ De **Investeringssubsidie Duurzame Energie en Energiebesparing (ISDE)** is de vo
 
 Warmtepompinstallateurs verschillen sterk in prijs en kwaliteit. Vergelijk altijd minimaal 3 offertes:
 
-[Vergelijk warmtepompen en ontvang offertes →](https://www.warmtepomp-weetjes.nl/offertes/?utm_source=vergelijk-uw-renovatie&utm_medium=affiliate&utm_campaign=woningverbetering)
+[Vergelijk warmtepompen en ontvang offertes →](https://www.warmtepomp-weetjes.nl/warmtepomp-offertes/?utm_source=vergelijk-uw-renovatie&utm_medium=affiliate&utm_campaign=woningverbetering)
 
 [Vraag gratis renovatie-offertes aan →](https://www.offerteadviseur.nl/verbouwen/?utm_source=vergelijk-uw-renovatie&utm_medium=affiliate&utm_campaign=woningverbetering)
 

@@ -194,7 +194,7 @@ Aannemerkosten verschillen sterk — tot 40% verschil voor hetzelfde werk. Verge
 
 [Vraag gratis keuken-offertes aan →](https://www.offerteadviseur.nl/verbouwen/?utm_source=vergelijk-uw-renovatie&utm_medium=affiliate&utm_campaign=keuken)
 
-[Vergelijk keuken installateurs →](https://www.verbeterjehuis.nl/keuken/?utm_source=vergelijk-uw-renovatie&utm_medium=affiliate&utm_campaign=keuken)
+[Vergelijk keuken installateurs →](https://www.offerteadviseur.nl/verbouwen/?utm_source=vergelijk-uw-renovatie&utm_medium=affiliate&utm_campaign=keuken)
 
 **Handige producten (via Amazon.nl):**
 - [Silestone werkblad staalgrijs](https://www.amazon.nl/s?k=silestone+werkblad+keuken&tag=vergelijk05-21)
