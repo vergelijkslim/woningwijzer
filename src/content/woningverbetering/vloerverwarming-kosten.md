@@ -20,6 +20,8 @@ relatedArticles:
   - "huis-verbouwen-gids"
   - "warmtepomp-kosten"
   - "cv-ketel-vervangen-kosten"
+  - "vloeren-renovatie-kosten"
+  - "zonnepanelen-kosten"
 ---
 *Dit artikel bevat affiliate links. Als je via onze links een offerte aanvraagt of product aanschaft, ontvangen wij mogelijk een vergoeding — zonder extra kosten voor jou.*
 

@@ -31,6 +31,7 @@ relatedArticles:
   - "woning-isoleren-volgorde"
   - "dakkapel-kosten"
   - "kozijnen-vervangen-kosten"
+  - "zonnepanelen-kosten"
 ---
 *Dit artikel bevat affiliate links. Als je via onze links een offerte aanvraagt of product aanschaft, ontvangen wij mogelijk een vergoeding — zonder extra kosten voor jou.*
 

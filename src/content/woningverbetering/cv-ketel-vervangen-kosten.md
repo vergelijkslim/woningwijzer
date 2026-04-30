@@ -20,6 +20,8 @@ relatedArticles:
   - "huis-verbouwen-gids"
   - "warmtepomp-kosten"
   - "vloerverwarming-kosten"
+  - "zonnepanelen-kosten"
+  - "woning-isoleren-volgorde"
 ---
 *Dit artikel bevat affiliate links. Als je via onze links een offerte aanvraagt of product aanschaft, ontvangen wij mogelijk een vergoeding — zonder extra kosten voor jou.*
 

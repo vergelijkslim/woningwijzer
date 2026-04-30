@@ -20,6 +20,8 @@ relatedArticles:
   - "huis-verbouwen-gids"
   - "warmtepomp-kosten"
   - "kozijnen-vervangen-kosten"
+  - "zonnepanelen-kosten"
+  - "dakrenovatie-kosten"
 ---
 *Dit artikel bevat affiliate links. Als je via onze links een offerte aanvraagt of product aanschaft, ontvangen wij mogelijk een vergoeding — zonder extra kosten voor jou.*
 

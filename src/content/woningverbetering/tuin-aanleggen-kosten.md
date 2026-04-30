@@ -16,6 +16,8 @@ faq:
     answer: "Basis (gazon + border): 1.500-3.000 EUR. Standaard met bestrating: 3.000-5.000 EUR. Luxe met ontwerp: 5.000-7.500 EUR."
 relatedArticles:
   - "huis-verbouwen-gids"
+  - "aanbouw-kosten"
+  - "vloeren-renovatie-kosten"
 ---
 *Dit artikel bevat affiliate links. Als je via onze links een offerte aanvraagt of product aanschaft, ontvangen wij mogelijk een vergoeding — zonder extra kosten voor jou.*
 
