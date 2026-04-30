@@ -131,6 +131,16 @@ Veel gemeenten bieden aanvullende subsidies voor isolatie, dubbel glas en groene
 7. **Uitvoering** — Regelmatig controleren, houd een logboek bij
 8. **Oplevering** — Keuring, restpunten, garantiebewijs
 
+## Dit raad ik af
+
+**Ik raad af om een verbouwing te starten tijdens de hoogste drukte (mei–augustus).** Aannemers zijn dan overboekt, wachttijden lopen op tot 6–9 maanden, en je onderhandelingspositie is zwak. Plan je verbouwing voor het najaar (september–november): aannemers zijn dan beschikbaarder, soms bereid tot kortingen, en je hebt voor de winter een gereed resultaat.
+
+**Een verbouwing zonder reservepot raad ik sterk af.** In de bouw geldt: rekening houden met 15–20% overschrijding is geen pessimisme, maar realisme. Verborgen gebreken (oud leidingwerk, funderingsproblemen, asbest) duiken altijd op zodra er gesloopt wordt. Wie geen buffer heeft, loopt halverwege vast.
+
+**Ik raad ook af om de goedkoopste offerte altijd te kiezen.** Als één offerte 30% lager is dan de andere twee, is er een reden: te weinig materiaalkosten ingecalculeerd, onervaren uitvoerder, of post-oplevering problemen. Kies de middenprijs van drie vergelijkbare offertes, niet de laagste.
+
+**Mijn keuze:** Bouw altijd een 15% onvoorzien-budget in. Begin een verbouwing in het najaar. En kies een aannemer met aantoonbare referentieprojecten — vraag een eerder project ter plaatse te mogen bekijken. Een goede aannemer zegt daar nooit nee op.
+
 ## Conclusie
 
 Een verbouwing is een flinke investering, maar met de juiste voorbereiding en een betrouwbare aannemer kun je duizenden euros besparen. Vergelijk altijd meerdere offertes, maak gebruik van beschikbare subsidies en plan je project zorgvuldig. Gebruik onze tools en vergelijkingen om de beste keuzes te maken voor jouw situatie.

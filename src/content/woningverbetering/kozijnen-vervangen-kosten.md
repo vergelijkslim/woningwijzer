@@ -47,6 +47,14 @@ relatedArticles:
 - **Aluminium:** Slank profiel, modern, duurste optie
 - **Hout-aluminium:** Beste van beide werelden, premium keus
 
+## Dit raad ik af
+
+**Houten kozijnen raad ik af als je weinig onderhoudsbereidheid hebt.** Hout heeft inderdaad een mooier karakter dan kunststof, maar moet elke 5–7 jaar worden geschilderd of gelakt. Verzuim je dat, dan verrot het hout vanaf de onderkant — een reparatie die duur is en lelijk. Wees eerlijk over hoeveel onderhoud je bereid bent te doen. De meeste mensen kiezen achteraf voor kunststof.
+
+**Ik raad ook af om triple glas te kiezen in woningen met houten vloeren of plafonds.** Triple glas is zwaarder dan HR++, wat bij oudere kozijnconstructies en dragende elementen onverwachte belastingen kan geven. Laat dit vooraf beoordelen. In veel gevallen geeft HR++ al 95% van het isolatievoordeel van triple voor 20–30% minder kosten.
+
+**Mijn keuze:** Kunststof kozijnen met HR++ glas voor 95% van de woningen. Onderhoudsvrij, goede prijs-kwaliteit, en de kwaliteit is de afgelopen tien jaar sterk verbeterd. Aluminium alleen als je een moderne woning hebt waarbij de slanke profielen visueel echt meerwaarde hebben.
+
 ## Subsidie
 
 Kozijnen met HR++ of triple glas: ISDE-subsidie 37 - 62 EUR per m2 glasoppervlak. Combineer met andere isolatiemaatregelen voor maximale subsidie.

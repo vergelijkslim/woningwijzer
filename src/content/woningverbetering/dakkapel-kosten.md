@@ -64,6 +64,14 @@ Een dakkapel is een van de populairste manieren om extra ruimte en licht te cre�
 
 Een prefab dakkapel wordt vaak in 1 dag geplaatst. Maatwerk duurt 2-5 dagen. De totale doorlooptijd (bestelling tot plaatsing) is gemiddeld 4-8 weken.
 
+## Dit raad ik af
+
+**Een maatwerk dakkapel raad ik af als je dakvlak standaard is.** Maatwerk kost 20–40% meer dan een prefab dakkapel terwijl het eindresultaat nauwelijks verschilt. Prefab dakkapellen zijn tegenwoordig goed geïsoleerd en professioneel afgewerkt. Maatwerk heeft alleen toegevoegde waarde bij ongebruikelijke dakhellingshoeken of specifieke breedte-eisen.
+
+**Ik raad af om een dakkapel te plaatsen zonder dakconstructie te laten controleren.** Oudere woningen (voor 1975) hebben soms een dakconstructie die versterking nodig heeft voordat een dakkapel geplaatst kan worden. Een dakconstructie-check kost €150–€300 en voorkomt een dure verrassing halverwege de verbouwing.
+
+**Mijn keuze:** Prefab dakkapel van een gespecialiseerd bedrijf, niet van een algemene aannemer. Dakkapelspecialisten (zoals Dakkapel.nl of vergelijkbare partijen) doen dit werk elke dag en zijn 15–25% goedkoper dan algemene aannemers voor hetzelfde product. Vraag altijd referentieprojecten op en controleer of de afdichting rondom wordt gegarandeerd.
+
 ## Conclusie
 
 Een dakkapel kost gemiddeld 6.000-15.000 EUR en is een uitstekende investering in woonruimte en woningwaarde. Kies prefab voor de beste prijs en vergelijk minimaal 3 offertes.

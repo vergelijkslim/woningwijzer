@@ -186,6 +186,16 @@ Een aanbouw moet worden aangesloten op de bestaande systemen in de woning. Dit i
 7. **Bouw** — Fundering → ruwbouw → installaties → isolatie → afwerking.
 8. **Oplevering** — Laat door een bouwinspecteur controleren vóór definitieve betaling.
 
+## Dit raad ik af
+
+**Een aanbouw met lessenaardak raad ik af als je dakramen wil.** Het lessenaardak ziet er modern uit op foto's, maar de lage kant heeft nauwelijks hoogte — je hebt dan een muur van 90 cm aan één kant, wat de gebruiksruimte sterk beperkt. Kies voor een plat dak of zadeldak als je de volledige ruimte wil benutten.
+
+**Ik raad ook af om te beginnen met bouwen zonder vaste contractprijs.** Aannemers die werken op regie (per uur) kunnen bij tegenvallers de rekening flink laten oplopen. Zorg altijd voor een vaste aanneemsom inclusief een post "onvoorzien" van 10%. Zo weet je waar je aan toe bent.
+
+**Een uitbouw in een jaar met een hoge hypotheekrente raad ik af als je het kunt uitstellen.** Bouwen op lening terwijl de hypotheekrente hoog is en de woningmarkt onzeker is, maakt de businesscase zwak. Als je het met 2–3 jaar kunt uitstellen, doe dat dan — óf onderzoek of je het kunt meefinancieren bij herfinanciering.
+
+**Mijn keuze:** Houtskelet constructie met plat dak voor de meeste aanbouwen. Sneller gebouwd, beter te isoleren dan traditioneel metselwerk, en bij vergunningsvrij bouwen (max. 4m diep) bespaar je ook nog eens op de vergunningskosten. Zorg dat je isolatiewaarden hoog zijn — een aanbouw die je in de zomer niet kunt koelen is vervelender dan je van tevoren denkt.
+
 ## Conclusie
 
 Een aanbouw kost gemiddeld **1.500-3.000 EUR per m²** inclusief fundering en afwerking. Voor een aanbouw van 15 m² kom je op 22.500-45.000 EUR. De grootste kostenbepalende factoren zijn: grondsoort (heipalen?), dakttype, constructiemateriaal en afwerkingsniveau. Bespaar het meest door vergunningsvrij te bouwen (max. 4 m diep), te kiezen voor een plat dak en houtskelet, en minimaal 3 offertes te vergelijken.

@@ -175,6 +175,16 @@ Vraag altijd offertes aan bij lokale dakdekkers — zij kennen de regionale mark
 6. **Combineer met subsidie** — Dakisolatie geeft ISDE-subsidie; regel dit VOOR de opdracht
 7. **Check garanties** — Goede dakdekkers geven 10+ jaar garantie op arbeid en materiaal
 
+## Dit raad ik af
+
+**Bitumen dakbedekking met een korte garantie raad ik af voor een plat dak.** Goedkope bitumen gaat 10–15 jaar mee; EPDM-rubber gaat 30–50 jaar mee voor een vergelijkbare aanlegprijs. Voor een plat dak is EPDM tegenwoordig de standaard — wie bitumen aanbiedt zonder goede reden, kiest voor oud materiaal. Vraag altijd naar de garantietermijn.
+
+**Ik raad af om genoegen te nemen met de aanbieding van de eerste de beste dakdekker die langs de deur komt.** Na een storm of bij zichtbaar dakschade werken ronselaars af die snel offertes aanbieden. Die zijn zelden de beste keuze. Neem de tijd, vraag minimaal drie offertes, en controleer VVND- of BDA-certificering.
+
+**Het overslaan van dakisolatie bij een renovatie raad ik sterk af.** Als je toch het dak opengooit of afdekt, voeg dan meteen dakisolatie toe. Later isoleren kost je opnieuw arbeidskosten voor het openleggen. Combineer dakrenovatie altijd met isolatie — de meerkosten voor isolatiemateriaal zijn marginaal vergeleken met het energievoordeel.
+
+**Mijn keuze:** EPDM-dakbedekking voor platdak, gecombineerd met PUR-schuimisolatie (Rc ≥ 3,5 m²K/W). Dat is de combinatie die ik zou adviseren voor de meeste woningen. Zorg dat je dakdekker VVND-gecertificeerd is — dat is de minimumstandaard voor kwaliteitsgarantie.
+
 ## Aannemer Kiezen voor Dakrenovatie
 
 Een dak is geen plek voor bezuinigingen op de vakman. Let op:
