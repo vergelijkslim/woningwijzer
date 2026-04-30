@@ -24,6 +24,8 @@ relatedArticles:
 ---
 *Dit artikel bevat affiliate links. Als je via onze links een offerte aanvraagt of product aanschaft, ontvangen wij mogelijk een vergoeding — zonder extra kosten voor jou.*
 
+# Dakkapel Plaatsen: Wat Kost Het in 2026?
+
 
 Een dakkapel is een van de populairste manieren om extra ruimte en licht te creëren op zolder. Maar wat kost het precies? We zetten alle kosten, regels en tips op een rij.
 

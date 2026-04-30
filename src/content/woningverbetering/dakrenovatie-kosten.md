@@ -34,6 +34,8 @@ relatedArticles:
 ---
 *Dit artikel bevat affiliate links. Als je via onze links een offerte aanvraagt of product aanschaft, ontvangen wij mogelijk een vergoeding — zonder extra kosten voor jou.*
 
+# Dakrenovatie Kosten 2026: Prijs per m² + Subsidies & Tips
+
 Een dakrenovatie is een van de grootste onderhoudsinvesteringen voor je woning — maar ook een van de meest impactvolle. Een goed dak beschermt je woning tientallen jaren, verbetert de isolatie en verhoogt de woningwaarde. In deze gids vind je alle kosten voor 2026, subsidies en praktische tips.
 
 ## Kosten Overzicht: Plat Dak vs. Schuin Dak

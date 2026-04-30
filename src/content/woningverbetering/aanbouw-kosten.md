@@ -41,6 +41,8 @@ relatedArticles:
 ---
 *Dit artikel bevat affiliate links. Als je via onze links een offerte aanvraagt of product aanschaft, ontvangen wij mogelijk een vergoeding — zonder extra kosten voor jou.*
 
+# Aanbouw Kosten 2026: Prijs per m² + Vergunning & Tips
+
 Een aanbouw is de meest ingrijpende manier om je woning te vergroten — en voor veel gezinnen de slimste investering. Je wint extra woonoppervlak zonder te verhuizen, verhoogt de woningwaarde en past de woning aan op jouw behoeften. In dit artikel vind je alle kosten voor 2026, de vergunningseisen en concrete tips om te besparen.
 
 ## Kosten Overzicht: Aanbouw per Type

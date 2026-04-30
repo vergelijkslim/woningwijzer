@@ -23,6 +23,8 @@ relatedArticles:
 ---
 *Dit artikel bevat affiliate links. Als je via onze links een offerte aanvraagt of product aanschaft, ontvangen wij mogelijk een vergoeding — zonder extra kosten voor jou.*
 
+# Vloerverwarming Kosten per m2 (2026)
+
 
 ## Kosten per Type
 

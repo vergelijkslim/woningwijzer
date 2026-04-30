@@ -39,6 +39,8 @@ relatedArticles:
 ---
 *Dit artikel bevat affiliate links. Als je via onze links een offerte aanvraagt of product aanschaft, ontvangen wij mogelijk een vergoeding — zonder extra kosten voor jou.*
 
+# Keuken Renovatie Kosten 2026: Compleet Overzicht + Merkvergelijking
+
 De keuken is het hart van de woning — en een renovatie verhoogt niet alleen het woonplezier, maar ook de woningwaarde. Of je nu kiest voor een complete nieuwe keuken of een slimme opfrisbeurt met spuitwerk: in dit artikel vind je alle kosten voor 2026, een merkvergelijking en bewezen bespaartips.
 
 ## Kosten Overzicht

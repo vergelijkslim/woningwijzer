@@ -1,6 +1,6 @@
 ---
 title: "Zolder Verbouwen tot Slaapkamer: Complete Gids (2026)"
-description: "Wat kost het om je zolder te verbouwen tot slaapkamer? Kosten, vergunningen, dakkapel opties en praktische tips."
+description: "Zolder verbouwen tot slaapkamer: kosten van basis tot luxe, vergunningseisen, dakkapel opties, stahoogte vereisten en praktische tips voor 2026."
 niche: "woningverbetering"
 type: "gids"
 publishDate: 2026-04-15
@@ -21,6 +21,8 @@ relatedArticles:
   - "dakkapel-kosten"
 ---
 *Dit artikel bevat affiliate links. Als je via onze links een offerte aanvraagt of product aanschaft, ontvangen wij mogelijk een vergoeding — zonder extra kosten voor jou.*
+
+# Zolder Verbouwen tot Slaapkamer: Complete Gids (2026)
 
 
 ## Kosten Overzicht

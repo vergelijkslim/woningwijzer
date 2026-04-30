@@ -35,6 +35,8 @@ relatedArticles:
 ---
 *Dit artikel bevat affiliate links. Als je via onze links een offerte aanvraagt of product aanschaft, ontvangen wij mogelijk een vergoeding — zonder extra kosten voor jou.*
 
+# Warmtepomp Kosten 2026: Compleet Overzicht met Subsidies
+
 Een warmtepomp is de meest effectieve manier om je woning te verduurzamen en aardgasvrij te verwarmen. Maar welke kosten komen hierbij kijken, welke subsidies kun je aanvragen en hoe lang duurt het voor de investering zich terugverdient? In dit overzicht zetten we alles voor je op een rij.
 
 ## Kosten per Type Warmtepomp (2026)

@@ -39,6 +39,8 @@ relatedArticles:
 ---
 *Dit artikel bevat affiliate links. Als je via onze links een offerte aanvraagt of product aanschaft, ontvangen wij mogelijk een vergoeding — zonder extra kosten voor jou.*
 
+# Badkamer Renovatie Kosten 2026: Compleet Overzicht per Element
+
 Een badkamerrenovatie is voor de meeste huishoudens een grote investering — maar ook een die lonend is. Een moderne badkamer verhoogt de woningwaarde, verlaagt het waterverbruik en zorgt dagelijks voor meer comfort. In dit artikel vind je alle kosten voor 2026, een merkvergelijking en concrete bespaartips.
 
 ## Kosten per Type Renovatie
