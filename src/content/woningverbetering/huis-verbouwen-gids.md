@@ -27,8 +27,12 @@ relatedArticles:
   - "keuken-renovatie-kosten"
   - "warmtepomp-kosten"
   - "woning-isoleren-volgorde"
+  - "schilderwerk-kosten"
+  - "stucwerk-kosten"
 ---
 *Dit artikel bevat affiliate links. Als je via onze links een offerte aanvraagt of product aanschaft, ontvangen wij mogelijk een vergoeding — zonder extra kosten voor jou.*
+
+# Huis Verbouwen in 2026: Complete Gids met Kosten, Tips & Subsidies
 
 
 Een verbouwing is een van de grootste investeringen die je als huiseigenaar doet. Of je nu je badkamer wilt renoveren, een uitbouw plant of je hele woning wilt verduurzamen: goede voorbereiding bespaart duizenden euros. In deze gids vind je alle kosten, tips en subsidies voor het verbouwen van je huis in 2026.
